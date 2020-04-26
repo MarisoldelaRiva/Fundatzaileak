@@ -1,0 +1,2 @@
+# Fundatzaileak
+Pasapalabra
